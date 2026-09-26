@@ -1,4 +1,4 @@
-<img src="https://64.media.tumblr.com/1e9a1a86e02105253d4057c868438ca2/6b6cef5fada6f113-fe/s2048x3072/ed6b7e0b237418e5baafed62eff08ee8dd0ab81f.gifv">
+<img src="https://64.media.tumblr.com/281b34829cae87c6b00ea2d643845060/b53acfa85d7b1eff-2f/s1280x1920/c208e49b01da32a120b3825f9475bf3db8cf2897.gifv">
 
 𝗠𝗔𝗜𝗡 𝗜𝗡𝗙𝗢
 
@@ -8,25 +8,25 @@
 
 . .┇ ◟ **AGE : 16**
 
-. .┇ ◟ **PRNS : They / it or ask**
+. .┇ ◟ **PRNS : It / its or ask**
 
-. .┇ ◟ **EXTRA : AUDHD, taken, suspected BPD, and HEAVILY SUSPECTED OSDD (I AM SEEING A DOCTOR)**
+. .┇ ◟ **EXTRA : AUDHD , taken , OSDD sys , Suspected BPD , umm idk but AIWC**
 
 . .╰ ┈ ᐟ☆🐇🌠
 
-<img src="https://64.media.tumblr.com/1e9a1a86e02105253d4057c868438ca2/6b6cef5fada6f113-fe/s2048x3072/ed6b7e0b237418e5baafed62eff08ee8dd0ab81f.gifv">
+<img src="https://64.media.tumblr.com/281b34829cae87c6b00ea2d643845060/b53acfa85d7b1eff-2f/s1280x1920/c208e49b01da32a120b3825f9475bf3db8cf2897.gifv">
 
 𝗜𝗡𝗧𝗘𝗥𝗘𝗦𝗧𝗦 & 𝗗𝗡𝗜
 
 ╭──────────.★..─╮
 
-┇ ♡ **The Amazing Digital Circus**
+┇ ♡ **An insane amount of Roblox fandoms liek a lot**
 
-┇ ♡ **Dandy's World**
+┇ ♡ **Spooky's Jump Scare Mansion**
 
-┇ ♡ **Dolly's Factory**
+┇ ♡ **Lost in Vivo**
 
-┇ ♡ **Animal Hospital**
+┇ ♡ **IMSCARED: A Pixelated Nightmare**
 
 ┇ ♡ **Needy Streamer Overload**
 
@@ -52,7 +52,7 @@
 
 ╰─..★.──────────╯
 
-<img src="https://64.media.tumblr.com/1e9a1a86e02105253d4057c868438ca2/6b6cef5fada6f113-fe/s2048x3072/ed6b7e0b237418e5baafed62eff08ee8dd0ab81f.gifv">
+<img src="https://64.media.tumblr.com/281b34829cae87c6b00ea2d643845060/b53acfa85d7b1eff-2f/s1280x1920/c208e49b01da32a120b3825f9475bf3db8cf2897.gifv">
 
 𝗢𝗧𝗛𝗘𝗥 𝗦𝗧𝗨𝗙𝗙
 
@@ -60,4 +60,4 @@
 - **Main PT skins: N/A RN.**
 - **No current specific area I sit!**
 - I have really bad social anxiety, so I might be dry at first, but I'll warm up after a while!!
-- CREDITS FOR DIVIDERS: dollywons on Tumblr
+- CREDITS FOR DIVIDERS: idfk
